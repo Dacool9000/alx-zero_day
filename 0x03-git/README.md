@@ -1,1 +1,2 @@
-how was your day
+how is you
+i am fine 
